@@ -1,3 +1,3 @@
-# Lumeo logo
+# Lumeo Logo pack
 
-Idk i'm not a graphic designer
+Please be aware that these logos are NOT under any open-source license.
